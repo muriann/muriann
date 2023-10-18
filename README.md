@@ -1,0 +1,3 @@
+- meu nome é murian f d santos estudo no colégio dr arnaldo busato
+- tenho 17 anos
+- moro no cruzeiro do iguaçu
